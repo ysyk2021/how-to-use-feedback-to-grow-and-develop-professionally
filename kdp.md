@@ -39,5 +39,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Learning and development
 18. Continuous improvement
 19. Change management
-20. Success strategies.
+20. Success strategies
 
