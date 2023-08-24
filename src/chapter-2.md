@@ -1,5 +1,3 @@
-Chapter 2: Understanding Feedback
-=================================
 
 Understanding feedback is essential for utilizing it as a tool for growth and development. In this chapter, we will explore the definition of feedback and the different types of feedback.
 

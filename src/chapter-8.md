@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Feedback into Performance Reviews
-==========================================================
 
 Incorporating feedback into performance reviews is essential for promoting growth and development. In this chapter, we will explore the importance of feedback in performance evaluations and techniques for incorporating feedback into performance reviews.
 

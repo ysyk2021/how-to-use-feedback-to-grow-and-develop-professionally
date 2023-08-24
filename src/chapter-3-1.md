@@ -1,5 +1,3 @@
-Techniques for Giving Effective Feedback
-==============================================================================================
 
 Giving effective feedback is an essential skill for personal and professional growth. In this chapter, we will explore techniques for giving effective feedback.
 

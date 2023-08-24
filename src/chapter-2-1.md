@@ -1,5 +1,3 @@
-Definition of Feedback
-=========================================================
 
 Feedback is a communication process in which information is provided to an individual or group about their performance or behavior. Feedback can come from a variety of sources, including colleagues, supervisors, mentors, and customers.
 

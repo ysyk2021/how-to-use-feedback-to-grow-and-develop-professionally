@@ -1,5 +1,3 @@
-The role of leadership in promoting feedback
-============================================================================================================
 
 Leadership plays a critical role in promoting effective feedback within an organization. Leaders who understand the importance of feedback and have the skills to give and receive it effectively can create a culture of feedback that supports professional growth and development.
 

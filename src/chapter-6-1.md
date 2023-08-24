@@ -1,5 +1,3 @@
-Common obstacles to giving and receiving feedback
-==============================================================================================
 
 Feedback is an essential element in professional development, but it's not always easy to give or receive. There are many obstacles that can get in the way of effective feedback, including personal biases, fear of conflict, and lack of trust.
 

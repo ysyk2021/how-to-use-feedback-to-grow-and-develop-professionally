@@ -1,5 +1,3 @@
-Chapter 5: Seeking Out Feedback Opportunities
-=============================================
 
 Seeking out feedback opportunities is essential for utilizing feedback effectively and promoting growth and development. In this chapter, we will explore strategies for seeking out feedback opportunities.
 

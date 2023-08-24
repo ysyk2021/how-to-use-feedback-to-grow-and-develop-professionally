@@ -1,5 +1,3 @@
-Selecting and implementing appropriate technologies
-===========================================================================================================
 
 Technology has revolutionized the way we work, including how we give and receive feedback. By leveraging technology, individuals and organizations can collect, analyze, and act on feedback more efficiently. In this chapter, we will discuss strategies for selecting and implementing appropriate technologies for improved feedback.
 

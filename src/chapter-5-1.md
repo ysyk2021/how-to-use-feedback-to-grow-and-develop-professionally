@@ -1,5 +1,3 @@
-Identifying sources of feedback
-==============================================================================
 
 Feedback is an essential tool for professional growth and development. To receive effective feedback, individuals must be proactive in seeking out feedback opportunities. In this chapter, we will discuss strategies for identifying sources of feedback.
 

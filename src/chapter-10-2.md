@@ -1,5 +1,3 @@
-Tracking progress and celebrating successes
-=====================================================================================================
 
 Incorporating feedback into professional growth and development requires ongoing effort and commitment. To ensure lasting change, individuals and organizations must implement strategies for tracking progress and celebrating successes. In this chapter, we will discuss strategies for implementing lasting change through tracking progress and celebrating successes.
 

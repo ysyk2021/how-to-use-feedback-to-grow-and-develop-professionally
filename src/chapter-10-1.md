@@ -1,5 +1,3 @@
-Incorporating Feedback Practices into Daily Routines
-==============================================================================================================
 
 Incorporating feedback practices into daily routines is essential for lasting change and professional growth. In this chapter, we will explore implementation strategies for incorporating feedback practices into daily routines.
 

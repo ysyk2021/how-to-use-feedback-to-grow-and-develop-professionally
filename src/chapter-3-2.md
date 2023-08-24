@@ -1,5 +1,3 @@
-Strategies for Receiving Feedback Constructively
-======================================================================================================
 
 Receiving feedback constructively is essential for personal and professional growth. In this chapter, we will explore strategies for receiving feedback constructively.
 

@@ -1,5 +1,3 @@
-Techniques for Developing Leadership Skills for Effective Feedback
-==================================================================================================================================
 
 Effective feedback is an essential leadership skill. In this chapter, we will explore techniques for developing leadership skills for effective feedback.
 

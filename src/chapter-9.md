@@ -1,5 +1,3 @@
-Chapter 9: Developing Leadership Skills for Effective Feedback
-==============================================================
 
 Developing leadership skills for effective feedback is crucial for creating a positive feedback culture and promoting growth and development. In this chapter, we will explore the role of leadership in promoting feedback and techniques for developing leadership skills for effective feedback.
 

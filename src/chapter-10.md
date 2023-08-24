@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing lasting change requires individuals to incorporate feedback practices into their daily routines and track progress towards their goals. In this chapter, we will explore strategies for implementing lasting change.
 

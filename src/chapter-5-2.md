@@ -1,5 +1,3 @@
-Creating a Culture of Feedback
-=============================================================================
 
 Feedback is an essential element in professional development. To grow and improve, individuals must proactively seek out feedback opportunities. However, seeking feedback can be challenging, especially when people are not used to giving or receiving feedback in their workplace culture.
 

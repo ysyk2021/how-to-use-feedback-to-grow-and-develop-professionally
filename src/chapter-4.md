@@ -1,5 +1,3 @@
-Chapter 4: Applying Feedback to Professional Growth and Development
-===================================================================
 
 Applying feedback to professional growth and development is essential for utilizing feedback effectively. In this chapter, we will explore strategies for applying feedback to professional growth and development.
 

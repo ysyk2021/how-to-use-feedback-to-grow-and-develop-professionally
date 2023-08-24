@@ -1,5 +1,3 @@
-Types of Feedback
-====================================================
 
 Feedback is a valuable tool for personal and professional growth. In this chapter, we will explore the different types of feedback.
 

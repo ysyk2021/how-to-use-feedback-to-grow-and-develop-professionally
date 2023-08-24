@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Obstacles to Feedback
-===========================================
 
 Overcoming obstacles to feedback is essential for utilizing feedback effectively and promoting growth and development. In this chapter, we will explore common obstacles to giving and receiving feedback and strategies for overcoming these obstacles.
 

@@ -1,5 +1,3 @@
-Strategies for overcoming these obstacles
-======================================================================================
 
 Feedback is an essential part of professional development, but there are many obstacles that can get in the way of giving and receiving feedback effectively. In this chapter, we will discuss strategies for overcoming common obstacles to feedback.
 

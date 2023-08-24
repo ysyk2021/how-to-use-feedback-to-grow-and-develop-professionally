@@ -1,5 +1,3 @@
-Chapter 3: Giving and Receiving Feedback Effectively
-====================================================
 
 Giving and receiving feedback effectively is essential for utilizing feedback as a tool for growth and development. In this chapter, we will explore techniques for giving effective feedback and strategies for receiving feedback constructively.
 

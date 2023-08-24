@@ -1,5 +1,3 @@
-Using Feedback to Identify Strengths and Weaknesses
-========================================================================================================================
 
 Feedback is a valuable tool for identifying strengths and weaknesses and promoting professional growth and development. In this chapter, we will explore strategies for using feedback to identify strengths and weaknesses.
 

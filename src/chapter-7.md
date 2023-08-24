@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Technology for Improved Feedback
-======================================================
 
 Leveraging technology for improved feedback is an increasingly popular approach to providing and receiving feedback. In this chapter, we will explore the overview of technology solutions for feedback and strategies for selecting and implementing appropriate technologies.
 

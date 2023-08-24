@@ -1,4 +1,3 @@
-# Introduction
 
 Feedback is an essential tool for growth and development in any professional setting. Whether you are a new employee or a seasoned veteran, receiving and utilizing feedback can help you identify your strengths and weaknesses and take actionable steps towards improving your performance.
 

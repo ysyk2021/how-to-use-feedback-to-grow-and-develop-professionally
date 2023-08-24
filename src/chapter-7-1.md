@@ -1,5 +1,3 @@
-Overview of technology solutions for feedback
-=====================================================================================================
 
 Technology has transformed the way we work, and it has also changed how we give and receive feedback. There are many software solutions available that can help individuals and organizations collect, analyze, and act on feedback.
 
