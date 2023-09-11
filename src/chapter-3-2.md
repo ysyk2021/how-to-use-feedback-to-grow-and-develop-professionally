@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Receiving Feedback Constructively
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Receiving feedback constructively is a skill that can greatly enhance your professional growth and development. In this chapter, we will explore strategies and techniques to help you approach feedback with an open mindset, learn from it, and use it to fuel your progress.
 

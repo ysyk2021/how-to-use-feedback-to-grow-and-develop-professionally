@@ -1,5 +1,4 @@
-Chapter 2: Types of Feedback
-============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Feedback comes in various forms, each with its own characteristics and purposes. In this chapter, we will explore the different types of feedback you may encounter in your professional life and understand how to navigate them effectively.
 

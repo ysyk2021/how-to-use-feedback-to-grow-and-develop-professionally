@@ -1,5 +1,4 @@
-Chapter 3: Using Feedback to Identify Strengths and Weaknesses
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Feedback is a powerful tool for professional growth and development. In this chapter, we will explore how to effectively use feedback to gain insights into your strengths and weaknesses, paving the way for targeted self-improvement and career advancement.
 

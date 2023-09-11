@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Developing Leadership Skills for Effective Feedback
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership and effective feedback go hand in hand. Leaders who possess strong feedback skills can inspire and empower their teams to reach new heights of professional growth. In this chapter, we will explore techniques and strategies for developing leadership skills that enhance feedback effectiveness.
 

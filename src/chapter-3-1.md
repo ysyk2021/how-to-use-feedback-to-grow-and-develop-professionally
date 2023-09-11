@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Giving Effective Feedback
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective feedback is not only valuable to the receiver but also to the giver. In this chapter, we will explore techniques and best practices for providing feedback that is constructive, well-received, and ultimately contributes to professional growth and development.
 

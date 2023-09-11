@@ -1,5 +1,4 @@
-Chapter 7: The Role of Leadership in Promoting Feedback
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective leadership plays a crucial role in fostering a culture of feedback within any organization. In this chapter, we will explore the pivotal role that leaders play in promoting feedback and how their actions can influence the professional growth and development of their teams.
 
